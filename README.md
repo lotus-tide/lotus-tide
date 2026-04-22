@@ -1,16 +1,23 @@
-## Hi there 👋
+<div align="center">
+  
+─── ⋆⋅☆⋅⋆ ───
 
-<!--
-**lotus-tide/lotus-tide** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+```text
+˙✧˖° ɪᴍ ɴᴇɪᴛʜᴇʀ ᴀɴᴄʜᴏʀᴇᴅ ᴛᴏ ᴛʜᴇ ꜱʜᴏʀᴇ ɴᴏʀ ʙᴏᴜɴᴅ ᴛᴏ ᴛʜᴇ ꜱᴋʏ - ɪ ᴇxɪꜱᴛ ᴡʜᴇʀᴇ ᴛʜᴇ ᴏᴄᴇᴀɴ ᴄᴏʟʟɪᴅᴇꜱ ɪɴᴛᴏ ᴛʜᴇ ꜱᴛᴀʀꜱ, ᴀɴᴅ ɪɴ ᴛʜᴀᴛ ᴇɴᴅʟᴇꜱꜱ ꜱᴘᴀᴄᴇ, ɪᴍ ꜰʀᴇᴇ ᴀɴᴅ ᴍʏ ᴡɪɴɢꜱ ᴄʀᴜᴍʙʟᴇ ɪɴᴛᴏ ꜱᴛᴀʀᴅᴜꜱᴛ. ⋆｡˚
+```
 
-Here are some ideas to get you started:
+<img src="link to my banner.png" width="100%">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+─── ⋆⋅☆⋅⋆ ───
+                                   
+```text
+₊˚ˑ༄ ʜɪ, ɪᴍ ꜱʜᴏʀᴇ! ɪᴍ ᴘʀᴇᴛᴛʏ ꜰʀɪᴇɴᴅʟʏ, ꜱᴏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ! ʜᴏᴡᴇᴠᴇʀ, ɪᴍ ɴᴏᴛ ʀᴇᴀʟʟʏ ɪɴᴛᴏ ᴍᴀᴋɪɴɢ ɴᴇᴡ ꜰʀɪᴇɴᴅꜱ. ✦₊ ˊ˗
+. ..𓂃  ་༘࿐  ɪ ꜱᴘᴇᴀᴋ ʀᴜ, ᴇɴɢ ᴀɴᴅ ʟᴠ, ᴀɴᴅ ʟᴇᴀʀɴɪɴɢ ꜱᴏᴍᴇ ᴏᴛʜᴇʀ ʟᴀɴɢᴜᴀɢᴇꜱ! Ⳋ‧˚
+⋮ ⋆.˚ ɪ ᴍᴀɪɴʟʏ ꜱɪᴛ ᴏɴ ᴄʜ ᴀʀᴇᴀ, ʙᴜᴛ ʀᴀʀᴇʟʏ ᴘʟᴀʏ ɪɴ ᴘᴛ ɪɴ ɢᴇɴᴇʀᴀʟ. ⋮⋆.˚
+ﾉ⊹₊ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴍʏ ꜱᴛʀᴀᴡ ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏ! ₊⊹ﾉ
+```
+
+─── ⋆⋅☆⋅⋆ ───
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆ ㅤㅤ━━･ icon here ❪[Twitter/X](https://x.com/lotusstide) ･ ⋆ ･ icon here [strawpage](https://lotus-tide.straw.page) ❫ ･━━ ⋆ 					
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
