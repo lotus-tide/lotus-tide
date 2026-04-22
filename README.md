@@ -19,5 +19,5 @@
 
 ─── ⋆⋅☆⋅⋆ ───
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆ ㅤㅤ━━･ icon here ❪[Twitter/X](https://x.com/lotusstide) ･ ⋆ ･ icon here [strawpage](https://lotus-tide.straw.page) ❫ ･━━ ⋆ 					
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆ ㅤㅤ━━･ ❪<img src="tw.jpg" width="2%">[Twitter/X](https://x.com/lotusstide) ･ ⋆ ･ <img src="straw1.png" width="2%">[strawpage](https://lotus-tide.straw.page) ❫ ･━━ ⋆ 					
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
