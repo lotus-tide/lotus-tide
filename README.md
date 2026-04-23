@@ -22,5 +22,9 @@
 </div>
 
 <div align="center">
-⋆━━･ ❪<img src="tw.jpg" width="2%">[Twitter/X](https://x.com/lotusstide) ･ ⋆ ･ <img src="straw1.png" width="2%">[strawpage](https://lotus-tide.straw.page) ❫ ･━━⋆
+⋆ ─── 
+<a href="https://x.com/lotusstide"><img src="tw.jpg" width="18" style="vertical-align:middle"> Twitter/X</a> 
+‧ ⋆ ‧ 
+<a href="https://lotus-tide.straw.page"><img src="straw1.png" width="18" style="vertical-align:middle"> strawpage</a> 
+─── ⋆
 </div>
