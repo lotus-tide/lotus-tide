@@ -24,7 +24,7 @@
 ─── ⋆⋅☆⋅⋆ ───
 
 
-˚｡⋆ <a href="https://lotus-tide.atabook.org/">atabook</a> ✦₊ <a href="https://pronouns.cc/@lotus_tide">pronouns.cc</a> ⋆｡˚
+˚｡⋆ ─── <a href="https://lotus-tide.atabook.org/">atabook</a> ‧ ✦₊ ‧ <a href="https://pronouns.cc/@lotus_tide">pronouns.cc</a> ─── ⋆｡˚
 
 
 </div>
