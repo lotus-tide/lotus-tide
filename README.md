@@ -9,6 +9,8 @@
 <img src="banner1.png" width="100%">
 
 ─── ⋆⋅☆⋅⋆ ───
+
+[![Hits](https://hits.sh/github.com/lotus-tide.svg?label=stars&color=191d60&labelColor=0d1117&logo=starship)](https://hits.sh/github.com/lotus-tide/)
                                    
 ```text
 ₊˚ˑ༄ ʜɪ, ɪᴍ ꜱʜᴏʀᴇ! ɪᴍ ᴘʀᴇᴛᴛʏ ꜰʀɪᴇɴᴅʟʏ, ꜱᴏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ, ᴛʜᴏᴜɢʜ ɪ ᴡᴏɴᴛ ɪɴɪᴛɪᴀᴛᴇ! ✦₊ ˊ˗
